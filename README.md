@@ -1,0 +1,1 @@
+# uts-teknikkomputer-pristiansiregar-25110065-
